@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... Email: vald.emmanuel04@gmail.com
 - ⚡ Fun fact: ... I love music and soccer
 
-> Work willingly at whatever you do, as if you were working for the Lord rather than for people
->> Colossians 3:23
+"Work willingly at whatever you do, as if you were working for the Lord rather than for people"
+> Colossians 3:23
